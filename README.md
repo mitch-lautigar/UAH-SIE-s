@@ -1,0 +1,1 @@
+UAH Student Instructor Evaluations (SIE's) are a semester review by the students at UAH which are not made available to faculty until after final grades are posted and are reviewed by the Dean/Administration of Engineering. I taught at UAH for several semesters, and have recently stopped due to personal obligations.
